@@ -189,7 +189,7 @@ Neilrp!
 
 
 
-LAFAYETTE:                                                        
+KINOST:                                                        
 
 Ah! Uh, get ya right hand man back (Get your right hand man back!)
 
