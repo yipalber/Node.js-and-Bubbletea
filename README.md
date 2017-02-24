@@ -1,13 +1,21 @@
 # Node.js-and-Bubbletea
 
 PSYCHORECYCLED:
+
 How does a reddit altright army in need of some brainpower
+
 Somehow defeat a campus superpower?
+
 How do we emerge victorious from the quagmire?
+
 Leave the battlefield waving Santa Ono’s flag higher?
+
 Yo. Turns out we have a secret weapon!
+
 A discorder you know and love who’s unafraid to step in!
+
 He’s constantly confusin’, confoundin’ the AUS henchmen
+
 Ev’ryone give it up for America’s favorite fighting Chineseman!
 
 COMPANY:
