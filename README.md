@@ -94,13 +94,13 @@ I need my right hand man back!
 WOMEN:
 Neilrp!
 
-LAFAYETTE:                                                        MEN:
-Ah! Uh, get ya right hand man back                        Get your right hand man back!
-You know you gotta get ya right hand man back      Your right hand man back!
+LAFAYETTE:                                                        
+Ah! Uh, get ya right hand man back (Get your right hand man back!)
+You know you gotta get ya right hand man back (Your right hand man back!)
 
-I mean you gotta put                                           Neilrp!
-some thought into the post                                 Ne—
-but the sooner the better                                     Ne—
+I mean you gotta put (Neilrp!)
+some thought into the post (Ne—)
+but the sooner the better (Ne—)
 To get your right hand man back!
 
 WOMEN, MEN:
